@@ -1,1 +1,1 @@
-`No personal data collected`
+No personal data collected
